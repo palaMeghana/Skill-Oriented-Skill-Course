@@ -1,1 +1,1 @@
-# Skill-Oriented-Skill-Course
+# Skill-Oriented-Course
